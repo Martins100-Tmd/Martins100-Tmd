@@ -1,4 +1,4 @@
-# 💫 About Me: Breaking production, so you don't have to 😉.
+### 💫 About Me: I ship code, then I dy/dx.
 
 
 ## 🌐 Socials:
