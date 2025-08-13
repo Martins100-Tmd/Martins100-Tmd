@@ -1,4 +1,4 @@
-# 💫 About Me: Study hard, work hard.
+# 💫 About Me: Breaking production, so you don't have to 😉.
 
 
 ## 🌐 Socials:
